@@ -62,10 +62,5 @@ If you have any questions or comments about the privacy policy, you can contact 
 
 ---
 
-## Effective Date
-
-July 2, 2025
-
----
 
 © 2025 Istanbul TV. All rights reserved.
